@@ -1,4 +1,4 @@
-# [✨ See Live PDF SHOP](https://web.dengrweb.com/view/?id=42)
+# [✨ See Live](https://web.dengrweb.com/view/?id=42)
 
 ![Cover](p1.png)
 ![Cover](p2.png)
